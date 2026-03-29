@@ -42,3 +42,10 @@ Task 4: Professional Etiquette
 Communication: Drafted formal emails for academic requests (assignment extensions) and professional inquiries (summer internships).
 
 TASK 5: IS A CASE STUDY
+
+IMPORATANT LINKS OF MY ACCOUNTS
+1) KAGGLE :https://www.kaggle.com/sahilsinha03
+2)LINKEDIN:https://www.linkedin.com/in/sahil-sinha-3701642a8/
+3)RESEARCH GATE:https://www.researchgate.net/profile/Sahil-Sinha-8?ev=hdr_xprf
+4)HACKER RANK:https://www.hackerrank.com/profile/thesahilsinha03
+5)National Cyber Crime Portal (cybercrime.gov.in)
